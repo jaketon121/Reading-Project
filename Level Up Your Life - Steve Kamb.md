@@ -51,7 +51,7 @@ If you’re not sure how to write out your origin story and alter ego, then try 
 
 # 5 RESIST TEMPTATIONS AND CONVENIENT EXCUSES  排除借口
 
-# 6 BEWARE DARK FORCES, HIDDEN FOES, AND HATERS
+# 6 BEWARE DARK FORCES, HIDDEN FOES, AND HATERS 排除敌人
 
 [Matrix] 
 
