@@ -52,3 +52,6 @@ Until trust is built, keep him on a leash.
 故意性的拉长时间直到建立足够的信任。
 Progressively lengthen it
 as your trust grows.
+
+假如信任被质疑，拉住狗环带领它。
+And if that trust is questioned...  advance to a choke collar.
