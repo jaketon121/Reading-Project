@@ -1,7 +1,8 @@
 
-https://levelupyourlife.nerdfitness.com/\
+https://levelupyourlife.nerdfitness.com/
 
-NerdFitness.com
+https://www.nerdfitness.com/
+
 # 1 Leaving the Shire
 像是前言。
 And that is what I will teach you: exactly how to take the things you love and use them as inspiration and education to 
