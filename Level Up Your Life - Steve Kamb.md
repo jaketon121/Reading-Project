@@ -26,3 +26,7 @@ Phase3 Profit
 “But, Steve,” you might be thinking, “I don’t know where to start.” As in any game, there will be times when you see many paths
 ahead of you, and you have no clue which one you need to take. I hear you, and I know that it can be overwhelming. However, 
 the worst thing you can do is sit down on the ground and complain that you don’t know what to do. More information at this point isn’t going to help, either. That’s just more underpants! Instead, why not just make an educated guess, pick a path, and see how things work out? Think of it like becoming the main character in a Choose Your Own Adventure book—it’s tough to find out what happens if you don’t turn the page.
+
+# Let's go !!! Don't afrid to put down the book ! 
+
+do yourself a favor and don’t collect any more underpants for the time being. As you are reading, don’t be afraid to put it down and get started and come back to it as you find different paths along your journey. As Ellie says in Pixar’s Up, “Adventure is out there!” Let’s go find it.
