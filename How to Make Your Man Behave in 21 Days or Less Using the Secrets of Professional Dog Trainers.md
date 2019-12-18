@@ -55,3 +55,11 @@ as your trust grows.
 
 假如信任被质疑，拉住狗环带领它。
 And if that trust is questioned...  advance to a choke collar.
+
+# 注意
+
+不要松掉你的狗链，直到你自信了建立了你们之间的枢纽之后。
+
+NOTE: Do not lose the leash
+until youVe completely confident
+of your established bond.
