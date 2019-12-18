@@ -44,3 +44,11 @@ Act like youVe having loads of fun without him. Soon he'll be trotting eagerly b
 
 Be sure to introduce your dog very slowly into the various aspects of your life, 
 or else you could inspire some very neurotic frenzied behavior; i.e., he could get destructive and break something.
+
+# 建立信任而后维持绳索
+
+Until trust is built, keep him on a leash.
+
+故意性的拉长时间直到建立足够的信任。
+Progressively lengthen it
+as your trust grows.
