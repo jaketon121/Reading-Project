@@ -20,3 +20,9 @@ and do that yourself.
 Phase1 Collect Underpants 
 Phase2  ？？？ 90by yourself doing  If not ???  - Phase1 
 Phase3 Profit 
+
+# Don't know where to start ? Why Not Just Pick One To Play ?
+
+“But, Steve,” you might be thinking, “I don’t know where to start.” As in any game, there will be times when you see many paths
+ahead of you, and you have no clue which one you need to take. I hear you, and I know that it can be overwhelming. However, 
+the worst thing you can do is sit down on the ground and complain that you don’t know what to do. More information at this point isn’t going to help, either. That’s just more underpants! Instead, why not just make an educated guess, pick a path, and see how things work out? Think of it like becoming the main character in a Choose Your Own Adventure book—it’s tough to find out what happens if you don’t turn the page.
