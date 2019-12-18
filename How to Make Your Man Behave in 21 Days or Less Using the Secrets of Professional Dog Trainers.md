@@ -7,12 +7,20 @@ How to Make Your Man Behave in 21 Days or Less Using the Secrets of Professional
 
 # 男人的定义
 Dog = Man  狗=男人
+
 Doggie = Man 小狗=男人
+
 Puppy = Man 幼狗 = 男人
+
 Mongrel = Man 狗杂种=男人
+
 Canine = Man 
+
 Mutt = Man
+
 Pack of Dogs = Men
+
+记住这个图标，你能更好的理解本书。
 
 # 半碗 - half-bowl 
 要让一只狗保持讨好的状态，就每次给他半碗的满足感就好，然后他每一次就会想要更多。
