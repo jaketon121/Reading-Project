@@ -38,3 +38,9 @@ If your dog is running away from you, the worst thing you can do is chase after 
 He'll only run faster. Instead, remain calm. Do something interesting to catch his attention. Flaunt a colorful plaything.
 Act like youVe having loads of fun without him. Soon he'll be trotting eagerly back.
 
+# 慢入生活
+
+确保你的狗慢慢渗入你的生活，不要一下子进入搅和了一片物品。
+
+Be sure to introduce your dog very slowly into the various aspects of your life, 
+or else you could inspire some very neurotic frenzied behavior; i.e., he could get destructive and break something.
