@@ -58,3 +58,7 @@ If you’re not sure how to write out your origin story and alter ego, then try 
 we’ve all been programmed to follow a specific set of rules that govern how we exist. For the past 80-plus years, that’s gone something like this: get a job for the most money you can, buy the biggest house you can, the nicest car, the biggest television, and work your ass off for 40-plus years until you retire at 65 to finally enjoy the good life. This is the wool that has been pulled over our eyes to keep us complacent and subdued. We’re taught and told by everybody around us that this is just the way things are, and we’re supposed to follow along and not cause any trouble.
 
 
+When you decide you no longer want to play by the rules of the Matrix and instead play by your own rules, some will get confused and others might not like it very much. Those still trapped will see you forging your own path and potentially get jealous or tell you to “be realistic.” Just as every story has heroes and villains, allies and enemies, so too will your path to success. So that we’ll be prepared to defeat them when they inevitably materialize.
+
+
+
