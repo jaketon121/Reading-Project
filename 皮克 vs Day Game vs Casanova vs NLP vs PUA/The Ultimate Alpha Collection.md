@@ -45,8 +45,11 @@ better off cutting out so many carbs from their diet. Carbs
 are after all what make you fat not fat. Alright so drink
 lots of water, get adequate protein, avoid carbs. 
 
-# Habit 3 - writing - journal - Write Project(Book-Blog) - writing (Non)fiction - Blog - keep everyday 
+# Habit 3 - writing - journal(Learned - change from the day before- 在日记这一天之前对之前日记的反思改变) - Write Project(Book-Blog) - writing (Non)fiction - Blog - keep everyday 
 
+[What I am asking you to do is to journal
+what you have learned that day and any ways in which
+you have changed from the day before.]
 
 Writing what?
 Well at first I would encourage you to journal. Now some
