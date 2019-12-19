@@ -34,3 +34,9 @@ look at an area of their body they don’t like and immediately start trying to
 reduce the fat or cellulite there, to the exclusion of most of their body-moving
 muscles. Unfortunately, fat loss doesn’t work that way, so they get frustrated
 with the results, and working out begins to feel like a waste.
+
+# Truth
+The truth is that we are all attracted to healthy bodies.
+So we’re gonna make sure you look sexy, by focusing on building a
+healthy body that is going to enable you to be the hero in any story you want
+to write. The foundation for this is going to be unconventional training.
