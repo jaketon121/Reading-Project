@@ -45,6 +45,39 @@ better off cutting out so many carbs from their diet. Carbs
 are after all what make you fat not fat. Alright so drink
 lots of water, get adequate protein, avoid carbs. 
 
+# Habit 3 - writing - journal - Write Project(Book-Blog) - writing (Non)fiction - Blog - keep everyday 
+
+
+Writing what?
+Well at first I would encourage you to journal. Now some
+of you may instinctively have a negative reaction to
+journaling but this isn’t the journaling you are familiar
+with. I’m not asking you to journal about what Bobby
+next door is doing or who is dating who or any pointless
+crap like that. What I am asking you to do is to journal
+what you have learned that day and any ways in which
+you have changed from the day before. This does two
+things. One gets you comfortable with writing down your
+thoughts and expressing them and two makes sure that
+you are learning something each and every day. Now after
+a while this will get boring and a bit pointless (at least it
+did for me). The next step is to focus your writing on a
+project. Here are three projects you can choose from. The
+first one is writing a fiction book. This can be for fun or
+something to publish on kindle eventually and make some
+passive income off of eventually. There is a lot to writing
+fiction and you would be surprised how much of it
+transfers over to real life. Option number two is to startwriting a non-fiction book. Pick something you want to
+know or know and write it down. Organize it and make it
+into a readable manuscript by proofreading it yourself or
+having someone else do so for you. This can be to publish
+one day or just for the experience. The third and final
+option is you could start a blog. If you’re having trouble
+as to what you should write on you blog just pick
+something that interests you and go for it. The point is too
+begin writing each and every day. Writing and expressing
+yourself is a fundamental skill in life. One that it pays off
+to refine, often literally
 # Focus on lifetime habit makes it who you are not shot term invest to X number days and off gone nothing left ...
 
 Now I’m sure you’ve
