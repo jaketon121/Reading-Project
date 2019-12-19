@@ -351,3 +351,102 @@ be prepared for what comes next.
 I can’t promise you that you will succeed, but I can promise that you will learn
 something. Whether it’s about your future career, your personal strengths, or yourself in
 general, you’re going to learn how to perform better next time, failure or not.
+
+# Deadly Mistake #7 - Applying Negative Labels to Your
+Efforts
+There are three phrases I hear more often than any others in my position. I work with so
+many people and many of them are at their wits’ end, unsure what to do with their lives
+or how to take the next step in life.
+And yet when I offer suggestions or coach them to take some of the actions we’ve been
+talking about in this report, I hear things like:
+I’m not good enough
+I’m too stupid
+I’m just going to mess it up
+People don’t trust me like that
+There are a million and one excuses and labels people apply to themselves every day
+that keep them from taking action and it has to change.
+You cannot and will not succeed if you tell yourself you are stupid. This does two things.
+First it plants the idea in your head that you ARE stupid. Second, it sets you up to fail as
+your actions will reflect that belief.
+Our minds are incredible machines and they can reflect almost anything we tell
+ourselves in action. If you are confident and sure of yourself, you are much more likely
+to succeed.
+And if you are negative and label yourself negatively, you are more likely to fail. It’s a
+self-fulfilling, negative prophecy and it sets you up for failure before you even try - and
+not the good kind of failure.
+Labels are a poison we feed ourselves (and others) based on everything else we’ve
+been talking about in this report:
+• What friends and family say to you
+• What you have experienced before
+• Your fears of failure and success
+• Your unwillingness to change
+• Your commitment to deferred happiness
+These labels are designed to keep you locked into those roles, to be stuck in a position
+that you have been in for a very long time and that will ultimately only hurt you if you’re
+not careful.That is not a good place to be, no matter what your goals are in life.
+
+# The Solution
+To overcome the negative labels you’ve given yourself over the years, you have to
+maintain an open mind. You have to be willing and able to create new possibilities, to
+believe that you are not only better, but smarter and more capable of anything you ever
+imagined.
+It’s a lot easier than you might believe. As I mentioned, the human mind is incredible.
+What you tell yourself and what you believe can directly reflect on your reality.
+When you were born, you were born pure and capable of anything.
+Your mind was a blank slate open to the wonders of the universe, and however you’ve
+gotten to where you are now, it’s possible to go back to that pure, seed moment and
+start over.
+More importantly, you can draw upon your limitless potential at any time, you just need
+to believe.
+While dressing the part, holding your head high, exercising daily, eating better, and
+smiling more often can certainly help you improve your physical confidence, you also
+need to improve your emotional confidence.
+Emotional confidence comes from within. It requires positive thoughts and positive
+energy fed by what you tell yourself.
+Whenever you find yourself starting to say something negative, either silently or aloud,
+replace it with a positive thought. Tell yourself
+I am intelligent and capable of anything
+I am good enough to do anything I put my mind to
+I am going to succeed and have fun
+People trust me to do my best
+Replace those negative thoughts with positive thoughts, and then go one step further.
+Spend every day repeating these positive thoughts to yourself, even when you are
+already in a good mood.
+When you install positivity in your subconscious mind and feed it every day with the fuel
+of positive actions and thoughts, you will become capable of anything. More importantly,you will banish those negative thoughts and never again need to worry about what other
+people think or what is holding you back.
+You CAN do anything.
+
+# Conclusion
+There’s more to avoiding failure than simple awareness of the pitfalls in front of you. But
+just knowing what is there goes a LONG way toward ensuring you don’t fall in.
+My hope, with the 7 deadly mistakes I’ve just shared with you, is that you now know
+how to avoid making them yourself.
+If nothing else, you’ll know what to look for when you start to move forward on your
+career path toward those goals you’ve been dreaming of for so many years.
+When that time comes, and when something crops up that could potentially derail
+everything you’ve done to get there, you’ll be ready, and that alone is something not
+many people can say.
+More importantly, though, you can start focusing on what will make you happy and lead
+toward success, rather than fearing the unknown.
+Fear is a strange emotion - one that can cripple and topple even the best prepared
+individuals - people who would otherwise be unflappable. The fear of what could be
+there and what could happen is so great in some situations that people have NO IDEA
+how to respond to it.
+You now know exactly what could happen and how to avoid it. That, my friends, is a
+fantastic tool and one that so few people have. Use it wisely and do your best to avoid
+the potential pitfalls you could fall into.
+If you are ready to make these moves, reread this report and think again about each of
+the mistakes listed and how you make them every day of your life.
+Now what changes can you make? Small, almost imperceptible changes to how you
+think, act, dress and interact with other people can all have an immensely positive effect
+on you and the people around you.
+Even if negativity comes from outside of you, from the people, friends, family and
+coworkers in your life, you can offset it with positive energy.
+There are certainly actions you can take, but 9 times out of 10 it is your mindset and
+willingness to make changes on the inside that will have the biggest and most striking
+impact on your perspective of the world.
+When you do that, these mistakes will become a thing of the past and you will be
+capable of nearly anything you put your mind too.
+
+
