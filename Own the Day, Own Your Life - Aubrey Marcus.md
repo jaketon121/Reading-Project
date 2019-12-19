@@ -51,4 +51,8 @@ able to train for a while. If you are going to do CrossFit, own the workout
 yourself. Listen to your body, do what you feel like you should do, and don’t get
 caught up and in over your head.
 
-
+# End Point Of Workout 
+Conventional means of exercise are going to create conventional results.
+And if you go to your local mall and look around, that isn’t going to cut
+it. Try out unconventional equipment like kettlebells, clubs, maces, and
+ropes.
