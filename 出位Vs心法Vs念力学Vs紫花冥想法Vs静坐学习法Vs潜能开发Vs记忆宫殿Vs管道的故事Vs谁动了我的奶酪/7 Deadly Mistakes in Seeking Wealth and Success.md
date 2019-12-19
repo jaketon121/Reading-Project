@@ -24,7 +24,8 @@ How many times have you told yourself you were overreacting to a situation, bein
 dramatic or just having “a bad day”.
 You can only lie to yourself for so long. Continue to do it and you’re going to stay in that
 rut the rest of your life.
-The Solution
+
+# The Solution
 When you feel surges of strong negative emotions, are upset by small issues, or simply
 cannot be somewhere any longer, those are signs that you need a change. Like right
 now.
