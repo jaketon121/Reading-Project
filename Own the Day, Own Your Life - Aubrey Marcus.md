@@ -40,3 +40,15 @@ The truth is that we are all attracted to healthy bodies.
 So we’re gonna make sure you look sexy, by focusing on building a
 healthy body that is going to enable you to be the hero in any story you want
 to write. The foundation for this is going to be unconventional training.
+
+#  CrossFit
+The bottom line is that CrossFit can be a fun, crazy workout that will get you
+in shape and introduce you to a community. But be careful. Use your own
+discretion about what you should and shouldn’t do. If it doesn’t feel right, don’t
+do it. Remember, it’s training, and as good as it feels to put your name on the
+board, it feels worse to put your name on the sign-in sheet at the ER and not be
+able to train for a while. If you are going to do CrossFit, own the workout
+yourself. Listen to your body, do what you feel like you should do, and don’t get
+caught up and in over your head.
+
+
