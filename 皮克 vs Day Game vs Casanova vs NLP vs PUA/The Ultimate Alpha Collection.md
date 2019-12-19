@@ -81,6 +81,11 @@ something that interests you and go for it. The point is too
 begin writing each and every day. Writing and expressing
 yourself is a fundamental skill in life. One that it pays off
 to refine, often literally
+
+# martial art 
+
+没有女人想要弱弱的男人 ，国民想要总统稳固有权柄有地位。
+
 # Focus on lifetime habit makes it who you are not shot term invest to X number days and off gone nothing left ...
 
 Now I’m sure you’ve
