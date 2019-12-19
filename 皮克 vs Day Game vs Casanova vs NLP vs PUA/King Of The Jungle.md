@@ -36,3 +36,14 @@ it’s an important mental schema to adapt. And as you gain
 more experience it will solidify as you’ll quickly find
 women aren’t these perfect goddesses that many who are
 unsuccessful with women believe.
+
+# value yourself value your time be little selfish .
+
+The best way to value yourself (and do it through actions
+which as we all know are much more powerful than
+words) is to invest in yourself. Now by invest I don’t
+necessarily mean that you go out and buy stocks or spend
+money on yourself (though that plays a role). What I
+mean is above and before everyone else you put your
+time, money, and love into yourself. This might sound alittle “selfish” but in reality it’s what healthy adjusted
+men do.
