@@ -223,3 +223,74 @@ going to a networking event and focusing on the CEO of a major client, or learni
 new skill or language that will improve your desirability when applying for your NEXT
 job, you can gain valuable life experience and step outside of your comfort zone all at
 the same time.
+
+--------------------------------------------
+
+# Deadly Mistake #5 - Deferring Happiness
+
+Here’s how most people think life will go.
+Go to college
+Get a boring job
+Work for 40 years
+Retire and enjoy the fruits of 40 years worth of work
+Really? You have to wait 40 years to even start to enjoy all the years you put in? Why?
+I’m not saying that you can retire tomorrow or that you’ll be happy right away. But
+there’s no reason to settle and accept your “fate” of misery for 40+ years, just for the
+potential promise of 20 or so years in retirement, if that.
+It depresses me to even think of it that way, and it should depress you too because
+millions of people make this mistake every year, and put themselves into a hole so deep
+they’ll never be able to come out of it and make smarter, more focused decisions for
+their life.
+It goes beyond mere work. How many times have you been miserable for days, weeks
+or even months when working toward a goal. Focusing so much on the end result that
+you never took more than five seconds to think about how you would get there?
+We all do it at some point, and it’s a sure way to never truly be happy.
+There can be happiness in every minute of every day, but not if you force yourself to
+wait on it - to sit back and let it come to you over the course of months rather than
+finding reasons to be happy every single day.
+The journey is a reward in its own right and deferring happiness or living only for those
+small moments of triumph when they occur will keep you constantly seeking something
+just out of reach.
+# The Solution
+There is no clear solution for this problem. However, you can start thinking about the
+here and now instead of the future.
+One of the most life changing movements in business the last decade or so has been
+the elimination of the “deferred happiness” plan.
+The “work for 40 years and retire” mentality that most of us are raised to have and that
+keeps so many people locked into the same job in the same location and with the same
+problems for year after year, most of our lives.How many people do you know that are working somewhere they HATE because
+retirement is only 5 years away? 10 years away? Heck, maybe it’s still 20 years away,
+but they’re halfway in, so why not keep working, right?
+It’s an awful place to be, but if you keep putting off your OWN happiness and letting
+work and life suck you dry of any energy and keep you from attempting the things you
+want to achieve in life, you’re going to be there too and it’s not as far away as you might
+think.
+The solution is to live for the here and now.
+To be excited for new opportunities and to try new things that you would never have
+considered before. The solution is be someone who isn’t content to sit back and let life
+pass them by, but that will continue finding new ways to push forward, even when life
+gets hard.
+You are going to have hard days. There will be times when you don’t want to get up and
+go to work. When the only thing you want to do is give up.
+If you live for the moment, enjoy the experiences as they come, and don’t expect
+yourself to hold off for 40 or more years, these moments will become much easier to
+deal with.
+It shortens the distance between here and tomorrow.
+And when the distances are shorter, they become much more manageable and much
+more enjoyable.
+Today I want you to take a moment, think about when the last time you let yourself be
+excited about something was. When was the last time you didn’t make yourself wait for
+something to happen? When was the last time you took action because you wanted to
+make something happen, and wanted to be happy.
+Let’s make today that day.
+
+# 番茄奖励
+The journey is a reward in its own right and deferring happiness or living only for those
+small moments of triumph when they occur will keep you constantly seeking something
+just out of reach.
+
+# The solution is to live for the here and now.
+To be excited for new opportunities and to try new things that you would never have
+considered before. The solution is be someone who isn’t content to sit back and let life
+pass them by, but that will continue finding new ways to push forward, even when life
+gets hard. 
