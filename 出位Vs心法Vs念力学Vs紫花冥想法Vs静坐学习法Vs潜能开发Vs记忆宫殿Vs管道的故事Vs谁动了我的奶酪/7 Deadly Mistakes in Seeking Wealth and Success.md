@@ -159,3 +159,61 @@ and care about.
 Discuss with your spouse and friends the support that you’re looking for, and how you’re
 trying to change your perspective. It might take time, but with the right focus and right
 attention to positive thoughts you can make it happen.
+
+
+# Deadly Mistake #4 - Falling Into a Rut and Staying There
+
+This goes right along with number three. If you hate your job, why are you still there?
+You have children, bills to pay, and other things that keep you from making major life
+changes. That’s a good enough reason.
+If you don’t have these things, fear of the unknown and lack of information are what
+keep you from taking action.
+In either case, nine times out of 10 people fail to take action because they’re stuck in a
+rut and they’re comfortable there.
+How can you be comfortable if you’re miserable? It has to do with the basic needs we
+have.
+Human beings are hardwired for only a handful of things. Our brains seek out and
+gather only the most essential tools and resources needed to live. So you’re going to
+gather what you need to pay your bills and feed your family. Combined with the human
+fear of loss (it’s a lot scarier to lose something than it is joyful to gain something) and
+you can grow “comfortable” in just about any position.
+Sometimes are you stuck.
+Sometimes you simply don’t have a choice.
+But a lot of the time, we tell ourselves we are “stuck” to avoid having to make a decision
+or take an action. That’s a scary place to be.
+The best way to achieve anything in life is to step outside of your comfort zone and try
+something NEW.
+Whether that means applying for a job that you wouldn’t normally think you can get,
+going to a networking event and focusing on the CEO of a major client, or learning a
+new skill or language that will improve your desirability when applying for your NEXT
+job, you can gain valuable life experience and step outside of your comfort zone all at
+the same time.
+Those who remain locked into a single location, never taking action, and always
+stumbling from one spot to the next, never quite sure what to do with themselves, this is
+a problem.
+# The Solution
+At a certain point, you need to take action.That’s the message here - take action. That doesn’t mean you have to get results right
+away. Don’t hold yourself to an unrealistic standard that will only leave you feeling
+dejected and let down three months from now.
+But don’t sit there and do nothing either.
+Don’t come home and complain about how horrible your job is every night and then
+spend four hours watching TV. Take action to make things better.
+Learn a new language. Get certified with a certain type of software. Start a website.
+Heck, start your own business.
+Because at the end of the day, the truth of the matter is this - your future and your
+happiness are in your own hands.
+If you don’t take action to make them a reality, you’re giving control over your life to
+someone else.
+Your boss. Your spouse. Your friends.
+You’re saying I’m not comfortable making these decisions - make them for me, and it
+probably means you’ll stay in the same disappointing job, making the same amount of
+money and never learning anything new, for years to come.
+If that’s as frustrating to read as it is to type, I know you’re ready to do something about
+it.
+Now is the time to take action - to get off the couch and go out there - to find someone
+or something that will help you climb out of that stupor brought on by years of following
+someone’s else’s path and to take action.
+If you are ready for that moment, then you are ready to never make this mistake again
+and that alone will make you happier and help you find greater success than you would
+ever expect.
+
