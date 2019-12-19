@@ -100,6 +100,20 @@ chance. No man wants look weak and violence is
 something people are not given options about. 
 
 让我们来做一个想象， 你在战乱年代，一个强大的女人拿着一把枪在保护你... 没有男人喜欢自己变得懦弱...
+
+# Habit 5 - Read Read Read ！！！ 
+
+Reading the stories and advice of others can bring rich
+insights to your life and will put you well ahead of thecurve. In addition to this remember that foresight teaches
+gently but experience teaches harshly. While there is
+nothing wrong with reading fiction I would prefer at least
+while you are starting out to read non-fiction at least for a
+year before including fiction in your reading selection. Or
+you could do what I do and always have one non-fiction
+and one fiction book that I am reading simultaneously.
+Dedicate to reading one book at least every two weeks.
+
+
 # Focus on lifetime habit makes it who you are not shot term invest to X number days and off gone nothing left ...
 
 Now I’m sure you’ve
