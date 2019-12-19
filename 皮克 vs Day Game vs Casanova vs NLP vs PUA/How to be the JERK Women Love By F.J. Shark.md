@@ -85,6 +85,35 @@ The first thing a Diamond Player learns is the definition of. . . .
 
 # 4 Love: The Most Expensive Illusion Kown to Man
 
+# 5 Anti-Physics at its Finest
+
+# The one who loves the least, controls the relationship.
+
+Nice people must want something. Remember when you wanted
+that dog, guitar, stereo, car or just wanted to go to the concert of the
+rock band that your parents hated? Did you ever notice that even
+when we were younger, our parents sensed when we wanted
+something simply because of our hungry actions? How did you treat
+the last person who was “overly nice” to you? Did you feel they were
+up to something or trying to take advantage of you and insult your
+intelligence? Well, didn’t it occur to you that women can pick up onthis as well? Better than most or all men I might add. Strangely
+enough, if you are continuously showing her that you are not
+interested in her by treating her like it doesn’t matter if she is around
+or not, then you are not a threat to her freedom and are not trying to
+get or take anything from her by manipulating her. Then her defenses
+will eventually go down because you are not like the other 150 guys
+that hit on her today. You are not falling into that trap of sounding
+like a used car salesman with canned lines.
+
+
+# One of the greatest key distinctions between Nice-guys and Jerks is -- fear of loss. 
+The Jerk has no fear of loss of the girl
+he is with because: 1) He knows there is an abundance of girls on the
+planet that he has yet to conquer, and 2) He has probably had better
+than the girl is currently with or at least gives her that impression by
+keeping a roving eye open for someone better.
+
+# 6 The 2 Keys to Entering a Woman's Mind
 
 都特么像前言。
 -----------------------------------
