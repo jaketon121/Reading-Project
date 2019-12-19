@@ -86,6 +86,20 @@ to refine, often literally
 
 没有女人想要弱弱的男人 ，国民想要总统稳固有权柄有地位。
 
+We live in a dangerous world, it
+always has been and always will be. Only sheltered
+people believe that violence is never the answer. Let me
+tell you something on this earth violence is very often the
+answer as unfortunate as that may be. Now you can think
+that you will be sheltered from violence your whole life or
+have others protect you for the remainder of your days but
+wouldn’t it be much better, and more satisfying, to know
+that should the cards be on the table you will know how to
+handle yourself and at the very least stand a fighting
+chance. No man wants look weak and violence is
+something people are not given options about. 
+
+让我们来做一个想象， 你在战乱年代，一个强大的女人拿着一把枪在保护你... 没有男人喜欢自己变得懦弱...
 # Focus on lifetime habit makes it who you are not shot term invest to X number days and off gone nothing left ...
 
 Now I’m sure you’ve
