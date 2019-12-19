@@ -22,3 +22,15 @@ exercise. Let’s start there. Exercise is for puppies and babies. We need to
 train. Train for a healthy body, because healthy is what matters. And training
 is what adults do who have goals and a mission to own the rest of their lives.
 Training unconventionally is how you do it with a smile on your face.
+
+# Men Like VS Women Like !
+Men like good pecs, so they overdevelop their
+chest in comparison to their back. Then those big strong pecs start pulling
+their shoulders forward, straining their rotator cuffs and front deltoids until
+their shoulders blow out. Then by the time they are forty years old, they can’t
+even do a pushup anymore, and instead of the chest filling out their shirts, it’s
+their gut. Women don’t usually have that issue. Theirs is different. They often
+look at an area of their body they don’t like and immediately start trying to
+reduce the fat or cellulite there, to the exclusion of most of their body-moving
+muscles. Unfortunately, fat loss doesn’t work that way, so they get frustrated
+with the results, and working out begins to feel like a waste.
