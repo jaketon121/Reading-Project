@@ -217,3 +217,9 @@ If you are ready for that moment, then you are ready to never make this mistake 
 and that alone will make you happier and help you find greater success than you would
 ever expect.
 
+# The best way to achieve anything in life is to step outside of your comfort zone and try something NEW.
+Whether that means applying for a job that you wouldn’t normally think you can get,
+going to a networking event and focusing on the CEO of a major client, or learning a
+new skill or language that will improve your desirability when applying for your NEXT
+job, you can gain valuable life experience and step outside of your comfort zone all at
+the same time.
