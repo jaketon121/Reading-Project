@@ -294,3 +294,60 @@ To be excited for new opportunities and to try new things that you would never h
 considered before. The solution is be someone who isn’t content to sit back and let life
 pass them by, but that will continue finding new ways to push forward, even when life
 gets hard. 
+
+# Deadly Mistake #6 - Fearing Failure
+
+“The greatest mistake you can make in life is to be continually fearing you will make
+one.”
+- Elbert Hubbard
+It’s human nature to fear failure. Ten thousand years ago, failure meant getting eaten by
+a mountain lion or not feeding your family, and that my friends is terrifying.
+Today failure is not always so dire. A missed bill payment, a bad review at work, or a
+blown job interview can certainly hurt and you’re going to be upset - it’s only natural -
+but they are only single events in the grand scheme of things.
+A single moment of failure rarely means someone in your family goes hungry or you
+lose your home.
+What failure means is that you tried and maybe things didn’t go as planned, but you at
+least tried, and in all likelihood, you learned from your actions. That alone is more than
+most people in your situation would do and it helps set you apart in a society filled with
+people who are happy to sit back and wait for life to pass them by.
+But why do we fear failure so much?
+Part of it is the feeling of social judgment that we worry about. No one wants others to
+look at them and see their failure. They don’t want to be judged for their decisions, nor
+do they want someone to think less of them because they were unable to achieve
+something.
+We focus so heavily on the bad things that happen when we fail that we often miss all
+the good things that come with it.
+Yes, failure is a good thing.
+When we fail, we learn. We learn so much, in fact, that many of the most successful
+entrepreneurs and business owners in the world will cite their failures more often than
+their successes when discussing how they got where they got.
+These moments don’t happen by accident. Somebody willing to take chances and try
+new things is bound to fail. Nobody succeeds 100% of the time.
+And because people are willing to take action and try new things, they are capable of
+putting themselves in positions to succeed. Not only do you learn from every failure you
+make, but because you are taking action, it’s much more likely that you will succeed in
+another situation.Who is likely to get a job faster? Somebody who applies to one job and fails in the
+interview or somebody who applies to 30 jobs and fails in 29 interviews? Regardless of
+the number of rejections they receive, the second person will always be hired first
+because they’re willing to learn from their mistakes and try again.
+
+ # The Solution
+There is no cure for fear. You will always be afraid that things won’t work out as you
+expect them to.
+There will be moments when you don’t know what to do and can’t imagine yourself
+finding success, even if you try that much harder.
+It’s normal. And sometimes no matter how hard you try, and how much you know on an
+intellectual level that you should try again, you can’t get yourself to do it.
+This is normal too.
+Those who are successful, however, and those who find happiness no matter what life
+throws their way, or those who are willing to take action and risks without fear of failure.
+The fear will always be there, but when the action is taken, these individuals set it aside
+and look forward. They think of what they’re going to learn, what they could potentially
+achieve, and what the next step will bring them.
+So the solution is simple.
+Step outside of your comfort zone, take action, no matter how terrifying it might feel, and
+be prepared for what comes next.
+I can’t promise you that you will succeed, but I can promise that you will learn
+something. Whether it’s about your future career, your personal strengths, or yourself in
+general, you’re going to learn how to perform better next time, failure or not.
