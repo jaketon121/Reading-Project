@@ -106,3 +106,56 @@ how to take the next step towards happiness and success.
 
 The path you’ve been waiting for is right in front of you, waiting for you to step foot on it
 and take action once and for all.
+
+# Deadly Mistake #3 - Hating Your Job
+
+This is a tricky one.
+A lot of people dislike what they do for a living. Many have a good reason for doing so.
+Maybe they haven’t asked those tough questions yet. Maybe they’re stuck because of
+medical bills or obligations to family.
+Maybe they just don’t know how to step off the path and look for new solutions.
+The bottom line is that, for whatever reason they feel lost, they do in fact feel lost, and
+there’s not much they can do about it without taking action.
+Instead of taking action, many people simply start to hate their job. They wake up every
+day dreading the drive to work, dreading the time spent with their coworkers, and hating
+everything they do.
+The negativity this generates can be a major obstacle when it comes time to feel
+motivated about anything.
+You spend literally 10 to 12 hours every single day bathing in negativity. And while
+some of those negative thoughts are perfectly natural, others are manufactured as you
+dwell on just how much you dislike what you are doing.
+You have significantly greater control over how you think and feel then you realize.
+At any time, you can make a major change in your perspective, evaluating and
+overhauling the way you interact with the world.
+But if you hate your job, stop listening to the people around you, and determine well in
+advance that every day is going to be a horrible day, it will be exceptionally hard to
+overcome those negative thoughts and empower yourself to take action that will move
+you to the career and life path that you’re looking for.
+
+# The Solution
+
+It’s not easy to stop hating your job. After all there’s a very good reason why you feel
+that way.
+Whether it’s the way you’re treated at work, the lack of fulfillment you feel on the job,
+low pay, long hours, or a particular person or persons that treat you poorly, your feelings
+are perfectly justified.
+That’s why the solution starts within.Peace, success, and happiness are all born within. How you feel and how you perceive
+the world will ultimately reflect in how you interact with it.
+As they say, those who see the proverbial glass is half-full are more willing to look
+positively at everything around them.
+Find people at work with whom you can relate. Work with them to think positively and
+enjoy the experience of going to work. Learn new things and grow your knowledge so
+that you can prepare for your next step in this long journey of life. Develop new skills,
+create new relationships, and prepare for your next job.
+No matter how bad a situation is, there’s always an opportunity to learn, grow, and
+develop new experiences that will help you in the future.
+You might hate your job today, but by taking advantage of the resources it offers,
+developing relationships with the people you work with, and working towards a goal,
+whether internally or at a different location, you can overcome those negative feelings
+and use the experience for your betterment.
+It’s not easy.
+It’s going to take some time, and you’re going to need help from the people you love
+and care about.
+Discuss with your spouse and friends the support that you’re looking for, and how you’re
+trying to change your perspective. It might take time, but with the right focus and right
+attention to positive thoughts you can make it happen.
