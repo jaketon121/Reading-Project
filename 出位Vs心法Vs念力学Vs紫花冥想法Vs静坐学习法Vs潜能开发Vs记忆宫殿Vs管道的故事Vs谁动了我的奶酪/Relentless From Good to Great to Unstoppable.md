@@ -87,3 +87,15 @@ comeback for that, you owned it. Now fix it. You
 can’t fix something unless you admit it
 
 
+Have the confidence to say when you’ve
+screwed up, and people will respect you for it.
+If you did it, own it. If you said it, stand by it.
+Not just the mistakes, but all your decisions and
+choices. That’s your reputation. Make it count. If
+you want your opinions to have value, you have to
+be willing to put them out there and mean what you
+say. Two things you can’t let anyone take from you:
+you can’t let them take away your reputation, and
+you can’t let them take away your balls. That
+means accepting the pressure of taking
+responsibility for everything you say and do.
