@@ -64,3 +64,26 @@ instinctively, hearing that voice inside saying,
 “This way!” And you go.
 
 
+# Make mistake ? Fine .
+
+When a Cooler makes a
+mistake, he’ll give you a lot of excuses but no
+solutions. When a Closer makes a mistake, he finds
+someone else to blame. When a Cleaner makes a
+mistake, he can look you in the eye and say, “I
+fucked up.”
+That’s it. Confident, simple, factual, no
+explanation. You made a mistake? Fine. Don’t
+explain it to me for an hour. The truth is one
+sentence, I don’t need a long story. You tell me you
+messed up, take responsibility . . . now you’ve
+gained my trust. As soon as you start giving me
+reasons and rationalizations, I know you have
+something to hide, and you’re not ready to take
+ownership. Save us both the time. You fucked up.
+Say it. There is not a faster way to alleviate
+pressure. “Man, I fucked up.” Okay. There’s no
+comeback for that, you owned it. Now fix it. You
+can’t fix something unless you admit it
+
+
