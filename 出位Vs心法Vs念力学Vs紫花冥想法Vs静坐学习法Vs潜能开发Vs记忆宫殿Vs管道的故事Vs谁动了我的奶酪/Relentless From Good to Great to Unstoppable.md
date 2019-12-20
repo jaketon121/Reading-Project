@@ -1,5 +1,5 @@
 
-                              # 《Relentless From Good to Great to Unstoppable》
+ # 《Relentless From Good to Great to Unstoppable》
 
 # Don't Think 
 # 1. WHEN YOU’RE A CLEANER . . .
@@ -17,3 +17,4 @@ you to see how you’re going to manage a situation
 that seems unmanageable. And you’d better be able
 to figure it out fast.
 
+# When what you’re doing isn’t working, find someone who can make itwork. And then let him do it. That’s the Cleaner’s job.
