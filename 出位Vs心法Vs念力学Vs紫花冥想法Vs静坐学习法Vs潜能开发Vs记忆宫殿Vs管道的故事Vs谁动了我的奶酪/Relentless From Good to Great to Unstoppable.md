@@ -99,3 +99,39 @@ you can’t let them take away your reputation, and
 you can’t let them take away your balls. That
 means accepting the pressure of taking
 responsibility for everything you say and do.
+
+
+# Plan Fast 
+
+The most successful people are those with the
+instincts to respond quickly to anything, without
+having to go back to the drawing board, watch
+more film, schedule a meeting, schedule a meeting
+to discuss what will be discussed at the meeting,
+or do any of the other countless things people do to
+put off making a decision. A couple years ago I
+was doing a youth camp for one of the big NBA
+sponsors, along with one of my players. They were
+expecting five hundred kids. Two thousand showed
+up. Everyone went into a panic: not enough
+stations, nowhere to put everyone, how did this
+happen, who’s to blame . . . Stop. Slow down.
+What do we have, what do we need? Give me ten
+minutes. I threw out the original plan, devised a
+new one. We’ll do it this way. Of course there’s
+always someone who can’t adapt, still clinging to
+the original failed plan, stammering, “But . . .but . . . we were going to do this and that and . . .”
+No. We’re going this way. Conversation over.
+Cleaned. That’s what Cleaners do, they ignore the
+panicking and complaining, they clean up the
+problem and they make it work.
+A Closer will adjust himself to the situation; a
+Cleaner adjusts the situation to himself. A Closer
+has to know what he’s going to do. A Cleaner
+doesn’t; he never wants to be locked in to one
+plan. He’ll know the original plan, and he’ll
+follow it if it feels right to him, but his skills and
+intuition are so great that he’ll usually improvise
+as he goes; he can’t help it. He just goes with the
+flow of the action, and wherever his instincts take
+him, that’s what you get.
