@@ -47,3 +47,20 @@ confidence or swagger that allows you to take risks
 and know that whatever happens, you’ll figure it
 out. Adapt, and adapt again.
 
+# Figure it out, I learned.
+
+Being relentless means having the courage to
+say, “I’m going for this, and if I’m wrong, I’ll make
+a change and I’ll still be fine.” You can’t control oranticipate every obstacle that might block your
+path. You can only control your response, and your
+ability to navigate the unpredictable. Whatever
+happens, you have the smarts and skills to figure it
+out and arrive at the outcome you wanted in the
+first place.
+And when I say “figure it out,” I don’t mean
+thinking about it for a week and asking everyone
+you know what they think. I mean immediately,
+instinctively, hearing that voice inside saying,
+“This way!” And you go.
+
+
