@@ -57,4 +57,6 @@ Before you head off on your commute each morning, find a quiet place and retreat
 
 # 商业爆裂法则！！！  - While posting or writing a blog is a great start, the key to building a brand of one is having your name endorsed by more established brands.
 
+# 商业爆裂法则！！！ - Disruptors looking for a big idea need only examine their worlds and their businesses: What problems do you confront every day? How do those problems provide the opportunity for value to be captured? More often than not, a big idea is just a simple solution to a small problem.
+
 
