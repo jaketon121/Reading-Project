@@ -59,4 +59,6 @@ Before you head off on your commute each morning, find a quiet place and retreat
 
 # 商业爆裂法则！！！ - Disruptors looking for a big idea need only examine their worlds and their businesses: What problems do you confront every day? How do those problems provide the opportunity for value to be captured? More often than not, a big idea is just a simple solution to a small problem.
 
+# 调整策略爆裂法则！！！ Test, verify, and adjust is the only way to stay on course. Data has no ego and makes an excellent copilot.
+
 
