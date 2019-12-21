@@ -41,3 +41,10 @@ Before you head off on your commute each morning, find a quiet place and retreat
 
  You’ve thought about what you’re aspiring to; now think about what else you want to find along the way. Do you want a family? Are you willing to delay one part of your life to pursue another aspect with more focus? “The purpose of life is a life of purpose,” author and billiards guru Robert Byrne wrote.4 What matters most to you? How you embody and achieve these core values will determine how you measure your success. Try writing these values down on a piece of paper. Be as detailed as you can. Include your personal and professional goals. Next, list your priorities in terms of relationships and time commitments. How much personal, spiritual, and family time do you require? All work and no play is unsustainable as a life plan. You can truly have it all, just not all at the same time. The more realistic you are about how you are going to prioritize your goals in life, the more in charge of your future you will be. For women, balancing goals against a ticking biological clock makes this step all the more important. Try to be honest and complete—the more detail you put into your plan, the more resources you will have to achieve it.
 
+
+------------------------------------------------
+
+
+
+# 商业爆破法则 - With a laptop and Internet connectivity, you have the ability to reach everyone in your industry anytime and from anywhere.
+
