@@ -48,3 +48,6 @@ Before you head off on your commute each morning, find a quiet place and retreat
 
 # 商业爆破法则 - With a laptop and Internet connectivity, you have the ability to reach everyone in your industry anytime and from anywhere.
 
+# 商业爆裂法则！！！  - While posting or writing a blog is a great start, the key to building a brand of one is having your name endorsed by more established brands.
+
+
