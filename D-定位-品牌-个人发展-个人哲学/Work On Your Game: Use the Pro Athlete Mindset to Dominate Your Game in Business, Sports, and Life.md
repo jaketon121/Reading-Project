@@ -57,3 +57,29 @@ I would work on my game, practicing alone at least ten
 times for every one game I played in (including halfcourt one-on-one and pickup games, not just ofcial
 games with my teams).
 
+# ANTs fnd their way into your subconscious mind through your repetitive thoughts. 
+
+# Step #1: Recognize When ANTs Come Around
+Te frst step to killing your ANTs and keeping them away forever is becoming aware of your habits of thought. According
+to Dr. Bruce Lipton, former professor of medicine at Stanford
+University, at least 85 percent of our daily thoughts are both
+habitual and unconscious. Tis means we don’t actually control
+most of our thoughts, and we are unaware that the thoughts are
+even occurring.
+And, just like with real ants, you have to catch them where
+they live. Notice yourself reacting negatively to a situation, and
+question where that energy is coming from. Te answers you get
+help you fnd the nest your ANTs live in.
+
+# Step #2: Have ANTs? Don’t Beat Yourself Up Over It!
+When you fnd ANTs (and you will, because everyone has at
+least a few), be appreciative of the fact that you now have the
+skills to identify them. Most people never even know they have
+them. At least now you can do something about them.
+
+
+# Step #3: Exterminate the ANTs
+If you notice any negative thoughts, immediately cancel them
+out with at least two positive thoughts on the situation at hand.
+By reversing that negative conditioning, you are turning your
+mind around in the direction you want it to go.
