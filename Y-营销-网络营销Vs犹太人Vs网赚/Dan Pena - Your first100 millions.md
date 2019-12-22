@@ -41,3 +41,53 @@ move on. Without looking back. I often say. "[ may be wrong - but I'm never in d
 have made those 75,000 business decisions?
 
 
+# Never look back.
+
+One more pre-requisite for super success. The high performance person never looks back. Do you know someone who suffers from terminal buyers' remorse? That individual shops for a new car, new
+home, new dress or new anything and then makes a purchase. The next day, he or she begins to revisit all the
+reasons the item they didn~ purchase was a better buy. Soon they're miserable. If they can, they return the
+item for a refund, and start the same tortuous shopping process over again. They'll never be satisfied because
+they don't have confidence in their ability to make a decision. Make every decision as if it's your drop-dead
+final word on the matter. Down the line, you may have to do a mid-cotmie correction based on the dynamics
+of business. But that's not looking back - that's keeping your eyes forward toward where you're headed.
+Big difference.
+
+# Make the sacrifice of Pay Price to ActioD....Take risks... Don't fear failure•.. Listen to your intuition ... Avoid conventional wisdom... Ignore what others think... and never look back.
+
+
+---------------------------------------
+
+# Chapter Two The Barrio...and the Castle 建立城堡的故事
+
+
+# Create Order From Chaos...and Make a Killing
+
+Find an industry in chaos, going through
+the agony ofcataclysmic change. Bring orderto that change, emerge
+from the battlefield chaos with a company that provides order and
+leadership, and you'll make a lot ofmoney.
+
+
+-------------------------------------------
+
+
+# Chapter Three - Conventional Wisdom - the Loser's Crutch
+
+
+# Building Your Personal Foundation 个人基础-打破传统智慧
+
+Before you can create and run a super successful company, you have to re-create yourself. You
+have to cleanse your mind of years of conventional wisdom, and in the void that's left, build a personal
+
+鸡汤开始- 你的思维限制了你 balbal
+
+
+Morons are everywhere. They work with you, they conunute with you, go to your health club, live
+next door, and are even in your family. They've limited their thinking and would feel much more comfortable
+if you'd limit yours too.
+You probably even pay for conventional wisdom. Some professions exist to keep you in the box
+of "how it's done," and typically attract very careful and conservative men and women with buttoned~down
+minds. 
+
+
+foundation based on all new rules.
