@@ -27,3 +27,6 @@ It’s not technically hard to change because there is no physical activity invo
 https://www.goodreads.com/book/show/40524076-the-art-of-intentional-thinking
 
 Nothing new here - it's just an overview of various mindset frameworks - but it's well written and helped me identify some things I need to work on. Recommended. 
+
+也就是说我还需要他妈的再搜集一些资讯 书籍 视频 影音 进行对mindset的大致内化 干！
+
