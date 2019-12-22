@@ -42,6 +42,8 @@ As you know, questions are a life coach’s most important and powerful tool. We
 5颗星星！  ！  
 
 
+这本书后续还有几个值得反复思考的问题，我需要多加思考，需要反复再看几遍再思考几遍！
+
 
 
 
