@@ -11,3 +11,17 @@ First of all, businesses are built on repeat customers, so you want to build a f
 
 It’s beyond the scope of this book to show you how to do all of this, but if you join my email list, I’ll show you exactly how (See what I did there?) Once they follow you, give them more content, videos, articles, and tips. They will know, like, and trust you and will be more likely to buy from you again and again, whether it’s more books, software, courses, or coaching packages. Then keep writing more books and simply repeat the process.
 
+
+
+# 评价
+
+就是写一本书放在亚马逊 流量多可见的地方咯    要我移植的话 只能是放淘宝  拼多多   就这样子，没有别的了。    结束。 
+
+最后一个tips 非常不错，   就是说只要我有料，我是可以源源不绝的在分享给客户实用的技巧让客户得到满足，最后你出产品，课程或者其他书籍，客户都会很喜欢的购买你的产品的， 因为客户获得了不止一星半点的好处。 这一点方法我很赞同！  
+
+不会像亚马逊评论的那样烂吧，还好，有点干货的。 
+
+4科星星！！！
+
+https://www.amazon.com/Passive-Income-Playbook-Step-Step-ebook/dp/B07B8XH9CR/ref=sr_1_1?keywords=The+Passive+Income+Playbook+The+Simple%2C+Proven%2C+Step-by-Step+System+You+Can+Use+to+Make+%24500+to+%242500+per+Month+of+Passive+Income+-+in+the+Next+30+Days&qid=1576976827&s=books&sr=1-1 
+
