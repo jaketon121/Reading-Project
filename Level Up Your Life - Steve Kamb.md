@@ -66,7 +66,37 @@ When you decide you no longer want to play by the rules of the Matrix and instea
 You don’t need to live the life expected of you. You don’t need to be doing something simply because it’s always been done that way. And there’s nothing telling you that you need to follow the traditional path of the trapped Matrix prisoner: wake up, go to a job, eat, come home, watch TV, sleep, repeat. You might be single and 20, or married and 40, or divorced with three kids at 60. Either way, The Rebellion needs you. Regardless of your current situation, we can get started living a better, healthier, happier life today. Remember Rule #1 of The Rebellion: “We don’t care where you came from, only where you’re going.” When you can find that happy medium between enjoying today, making improvements, and planning for tomorrow, amazing things start to happen and life gets epic—the story arcs you live start to build on top of each other; each completion of the circle brings more adventure, more stories, more growth, and more personal transformation. Whether you plan on improving your life through a renewed focus on making an impact at work, finding happiness with activities after work, a physical transformation that enables you to participate in more activities, or a focus on travel by radically adjusting how you make a living—changes to the source code will have you seeing ones and zeroes like Neo and have you playing on a completely different level than everybody else around you.
 
 
-# 12 DEFINE YOUR LEVEL STRUCTURE
+
+-----------------------------------------------------------------------
+
+# EMBRACE GAMIFICATION TO UNLOCK HAPPINESS   拥抱满足 解锁幸福
+
+- Believe it or not, hidden within our favorite video games are the secrets to
+our happiness.   From Zelda to Mario, Call of Duty to World of Warcraft,
+video games have discovered the fundamental principles that can teach us
+how to live better, happier lives.
+
+# HAPPINESS IN A NUTSHELL: GROW AND FLOW
+
+游戏给到我们一种升级的满足感，人生就是不断地成长。
+
+- we are happy when we are making progress. If you’ve ever
+spent hours killing the same bad guys repeatedly to level up in a video game,
+this will not come as a surprise to you. We love making progress so much
+that we actually enjoy it more than getting the thing we wanted in the first
+place! 
+
+
+
+
+
+----------------------------------------------------------------
+
+
+
+# 12 DEFINE YOUR LEVEL STRUCTURE 定义自己的等级 
+
+- 自明星-网红-各类技能get - 每天15min - 然后兴趣使然就会花更多时间。
 
 You don’t jump from Level 1 to Level 50,right? You go from Level 1 to Level 2, to Level 3, and so on. There’s a very
 clear progression from Zero to Hero, newbie to badass. On top of that, the
@@ -75,4 +105,23 @@ pushing yourself just a bit more, stretching to fight bad guys just slightly
 better than you are. If you were to attack a Level 40 dragon when you’re
 Level 5, you’re going to get your ass kicked. However, after you’ve built up
 your character to Level 50, and are equipped with the most powerful weapon
-in the game, you’re going to crush that dragon like a fly
+in the game, you’re going to crush that dragon like a fly.
+
+- If we can create 10 steps to mastery
+of a skill, then we can focus our energy on simply putting one foot in front of
+the other and the process will take care of itself.
+
+- Remember, pick a quest, break it into teeny tiny levels, and spend 15 minutes
+completing the first mini quest. Incrementally, bit by bit, you’ll move closer
+to mastery or completion of your main quest.
+
+# BE R.A.A.D: REEVALUATE, ADJUST, ADAPT, AND DOMINATE
+
+When we can objectively see how things have gone, we can then adjust our
+strategy for future quests or missions. That’s why it’s important to constantly
+evaluate and re-evaluate progress; that’s how we grow. I encourage you to
+use a website or journal (or LevelUpYourLife.com) to track your journey.
+The path isn’t always clear, but the fortune favors the bold and you can
+always course-correct along the way.
+
+# CONQUER BOSS BATTLES AND FIND TREASURE CHESTS
