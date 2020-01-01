@@ -87,6 +87,16 @@ that we actually enjoy it more than getting the thing we wanted in the first
 place! 
 
 
+- 练习1 - Time spent daily, hopefully in a job that challenges us, but also in our
+after-hours hobbies
+
+- 练习2 - 记录- An ability to show ourselves that we are making consistent progress
+and improvements toward a specified goal.
+
+- 练习3 - 保持作息保持能量 - Energy and attention dedicated each day to an activity that puts us in
+the zone.
+
+
 
 
 
