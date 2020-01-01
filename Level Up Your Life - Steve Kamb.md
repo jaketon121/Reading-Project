@@ -69,7 +69,7 @@ You don’t need to live the life expected of you. You don’t need to be doing 
 
 -----------------------------------------------------------------------
 
-# EMBRACE GAMIFICATION TO UNLOCK HAPPINESS   拥抱满足 解锁幸福
+# 7 EMBRACE GAMIFICATION TO UNLOCK HAPPINESS   拥抱满足 解锁幸福
 
 - Believe it or not, hidden within our favorite video games are the secrets to
 our happiness.   From Zelda to Mario, Call of Duty to World of Warcraft,
@@ -97,7 +97,23 @@ and improvements toward a specified goal.
 the zone.
 
 
+----------------------------------------------------------------------------------------
 
+
+# 8 World Building 101: Create the Rules for Your Game of Life
+
+- 英雄之旅还是普通之旅 - 红色药丸还是蓝色药丸？ - every day we have
+two options: we can choose to believe life is a series of random coincidences
+that are mostly out of our control, or we can choose to believe the world in
+which we live is full of secrets, that everything is epic, and that we are
+playing the role of a character in a massive world built around us, as
+characters who are on their own Hero’s Journey or are helping us with ours.
+
+- You’re not just a programmer for a big corporation, but rather a
+superhero playing the role of a programmer, and you’re playing that role
+to the best of your ability. You’re a hacker who is finding solutions to
+world-changing problems during the day, and then you get to live out
+your alter ego at night: a dancing phenom, a musical talent, or a mixedmartial-arts master.
 
 
 ----------------------------------------------------------------
