@@ -66,3 +66,13 @@ When you decide you no longer want to play by the rules of the Matrix and instea
 You don’t need to live the life expected of you. You don’t need to be doing something simply because it’s always been done that way. And there’s nothing telling you that you need to follow the traditional path of the trapped Matrix prisoner: wake up, go to a job, eat, come home, watch TV, sleep, repeat. You might be single and 20, or married and 40, or divorced with three kids at 60. Either way, The Rebellion needs you. Regardless of your current situation, we can get started living a better, healthier, happier life today. Remember Rule #1 of The Rebellion: “We don’t care where you came from, only where you’re going.” When you can find that happy medium between enjoying today, making improvements, and planning for tomorrow, amazing things start to happen and life gets epic—the story arcs you live start to build on top of each other; each completion of the circle brings more adventure, more stories, more growth, and more personal transformation. Whether you plan on improving your life through a renewed focus on making an impact at work, finding happiness with activities after work, a physical transformation that enables you to participate in more activities, or a focus on travel by radically adjusting how you make a living—changes to the source code will have you seeing ones and zeroes like Neo and have you playing on a completely different level than everybody else around you.
 
 
+# 12 DEFINE YOUR LEVEL STRUCTURE
+
+You don’t jump from Level 1 to Level 50,right? You go from Level 1 to Level 2, to Level 3, and so on. There’s a very
+clear progression from Zero to Hero, newbie to badass. On top of that, the
+challenges are presented in such a way that you are always incrementally
+pushing yourself just a bit more, stretching to fight bad guys just slightly
+better than you are. If you were to attack a Level 40 dragon when you’re
+Level 5, you’re going to get your ass kicked. However, after you’ve built up
+your character to Level 50, and are equipped with the most powerful weapon
+in the game, you’re going to crush that dragon like a fly
