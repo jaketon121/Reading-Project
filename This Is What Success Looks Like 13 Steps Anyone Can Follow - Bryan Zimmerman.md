@@ -132,3 +132,7 @@ It has to be that way. You will have to make sacrifices. In the end, it's worth 
  The 11th Commandment in my life, and now in yours too, is Thou Shalt Get To Work!
 
 
+# 不舒服游戏
+
+The only way to deal with a comfort zone in business and in life is to smash the walls down! The best thing you can do for yourself is to do something outside of your comfort zone each day. Every day, look for something that's outside your comfort zone and then DO IT! If you do this every day, imagine what it will take to actually make you uncomfortable! Over the course of time, there's not going to be much that you're not comfortable doing.
+
