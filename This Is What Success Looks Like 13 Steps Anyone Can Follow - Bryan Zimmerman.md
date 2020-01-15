@@ -84,4 +84,13 @@ The key to this is consistency! Just like anything else, the more you do it the 
 Again, I know you may be reading this saying you don't have 30 minutes. My response to that is you may need to go back and re-read one of the previous steps and make your commitment.  Either that or you're still more into the idea of success than actually doing what you need to really make it happen. If that's you, I understand. But you'll wind up working for people like me instead of getting what you want.
 
 
+# 比对成功法
+
+Right now, many people who are reading this are pumped up, ready to put up a squeeze page, adjust their engagement and start running traffic, right?  Wrong again. You're still not thinking! While you're watching, this is the time you're adjusting your list you created in an earlier step! You're watching what someone else is doing that has got them to where you want to be. You compare what you're noticing to the things you set out for yourself and seeing where you can make changes and improvements. Then you take that research even further and you look at how they are getting their traffic. Are they running advertisements? Do they have affiliates? Are they doing ad swaps, webinars, thank you page links and a ton of other traffic strategies? I won't go into all of those, but finding out this information helps you to see how they're doing it and what your options are to do it yourself. Are they friends with these affiliates? Do they cross promote each other or are they well networked in. Do you want to know? Then sign up for the lists of the affiliates and see what they're promoting!
+
+他们做了什么？ 他们怎么做？ 什么情况做什么？ 
+
+他们赚钱打广告了吗？ 他们花了多少钱打广告？ 
+
+
 
