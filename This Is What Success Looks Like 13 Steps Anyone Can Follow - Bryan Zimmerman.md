@@ -97,4 +97,38 @@ Right now, many people who are reading this are pumped up, ready to put up a squ
 Something you'll hardly hear anyone tell you is to watch what they do that didn’t work out and try to figure out why. What did they do differently or why didn't it work out? How did they react to that? Did they get upset about it? Did they walk away and get depressed or did they go back and figure something else out and come back and try again quickly? What was their response to it? How did they react to it? How did they deal with it? You pick up so much by really watching and looking for the details in situations. Most people don't do this. They are too busy focusing on what their ego is telling to feel to even notice the lessons happening right in front of them. Don't be that person. It'll hold you back from what you really want!
 
 
+# 4 竞争比对
+
+If you want to get better at anything, you have to have two things. The desire to work hard to achieve it and to surround yourself with people who are better than you at it.  If you talk to any professional athlete, they will tell you the best way to get better is to play against people who are better than you. Yes, they're going to kick your ass for a good while, but you will automatically begin to get better because you're forced to! It's just another way your subconscious mind helps you out. The more you do it, the better you get, and the harder you work.
+
+The other side is, if you surround yourself with players who are not at your level, your game will drop. Sure, you may be the best in the group, but it's not helping you sharpen your game. There's no competition there and you're not going to be anywhere near as focused or driven to grow. You've capped out, so to speak.
+
+In business, it's no different. If all you do is hang around people who make the same amount as you, the chances of you making big jumps in money is slim and none. I'm definitely not saying you should stop being friends with them anymore, which would be a stupid move. I am still better friends with people who make one tenth of what I make than ones that make the same or more as me. However, when it comes to talking about business situations, goals, ideas and any other situation, I'm talking to people who make more. Why? Because they've been there already, and I'm “watching” them as I talked about in the previous chapter!
+
+Look at a person’s watch and see if there's anything special about it. Does it have a sports team on it? Is there a Mickey Mouse on it? Many times, gifts are given from grandparents, children, etc. Is it expensive and they're constantly making sure it's in eye sight of others? All of these things provide clues. Look at their clothes and see if you can notice anything that will give you those clues to who they are. People who play golf usually wear certain brands, as do people who play tennis. Look at their shoes to see if they are wearing runners or dress shoes. Hang around close to their conversations to see if you can pick up anything that you can casually mention in passing, or just as a conversation starter. You're looking for the “human” element that gives you the opportunity to integrate. Some of you may think you will not find anything that gives you that opportunity, but it's there. You just have to keep looking, it's the key to it all.
+
+
+# 5 牺牲  sacrifices
+
+When I was waiting tables, I wanted the station I wanted. I did everything to make sure it happened, no matter what it was. If I had to stay late, I did. If I had to take extra tables, I did. If I had to clean up someone else’s tables, or work in the dish pit, or do someone else's side work or even come in early, I did it.
+
+It has to be that way. You will have to make sacrifices. In the end, it's worth it. Let yourself never be that person that sits in their wheel chair at eighty years old and says “I wish I would have given more effort to that when I had the opportunity”.
+
+
+# 6  CHAPTER 10 THE 11TH COMMANDMENT
+
+ This is the shortest chapter in the book because there is no real way to say it other than in plain English. It's also my favorite chapter because it's something I've always prided myself on knowing no one will ever do it better than I do.  Bold statement? 
+ 
+ Absolutely, but I believe it and that's all that matters (more on that later). You have to work. You have to work hard. You have to work harder. And when you think you’ve worked hard enough then you need to work even harder!  Why? Because that’s exactly what that person did that’s in the position you want to be in. 
+ 
+ Nothing is handed to anybody and when you think you’ve worked enough then you need to spend a little bit longer and work some more. 
+ 
+ You have to ask yourself the question, 
+ 
+ “If I get those things that I wrote down that I wanted, when I reach that point and I have those things, will I look back and say all that hard work that I put in was worth it?  The times I wanted to quit, when I wanted to stop, when I wanted to go to bed, when I wanted to watch TV, when I wanted to go to a concert, but I skipped all that stuff. Is where I am now, was it worth sacrificing all those things I gave up to obtain it?” The answer will be “HELL YES!” If I gave you a sheet of paper, a blueprint, that listed everything you had to do in the next three years, everything you needed to do on a daily basis and made the promise that at the end of that three years, if you had done them all, you'd get five million dollars, would you take it? Of course you would, almost everyone would. That's what you're creating here from the material in this book. 
+ 
+ You're making your own blueprint! You just plug in what you want the end result to be and put forth the effort to make it happen. 
+ 
+ The 11th Commandment in my life, and now in yours too, is Thou Shalt Get To Work!
+
 
