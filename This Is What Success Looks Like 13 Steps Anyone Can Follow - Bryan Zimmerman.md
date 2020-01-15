@@ -92,5 +92,9 @@ Right now, many people who are reading this are pumped up, ready to put up a squ
 
 他们赚钱打广告了吗？ 他们花了多少钱打广告？ 
 
+大部分人都没有时间观察 做分析。
+
+Something you'll hardly hear anyone tell you is to watch what they do that didn’t work out and try to figure out why. What did they do differently or why didn't it work out? How did they react to that? Did they get upset about it? Did they walk away and get depressed or did they go back and figure something else out and come back and try again quickly? What was their response to it? How did they react to it? How did they deal with it? You pick up so much by really watching and looking for the details in situations. Most people don't do this. They are too busy focusing on what their ego is telling to feel to even notice the lessons happening right in front of them. Don't be that person. It'll hold you back from what you really want!
+
 
 
