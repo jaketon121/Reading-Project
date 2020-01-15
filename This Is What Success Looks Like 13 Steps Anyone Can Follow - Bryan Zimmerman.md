@@ -137,3 +137,52 @@ It has to be that way. You will have to make sacrifices. In the end, it's worth 
 The only way to deal with a comfort zone in business and in life is to smash the walls down! The best thing you can do for yourself is to do something outside of your comfort zone each day. Every day, look for something that's outside your comfort zone and then DO IT! If you do this every day, imagine what it will take to actually make you uncomfortable! Over the course of time, there's not going to be much that you're not comfortable doing.
 
 # IT'S ALL A MEANS TO AN END  最终的意义 开心 快乐
+
+
+------------------------------------------------------
+
+
+# CHAPTER 20 THE FASTEST WAY TO BECOMING A PRODUCTIVE MACHINE
+
+The Mindset Blueprint
+
+the one thing that separates people who are successful is having the ability to block out all the distractions and focus on PRODUCTIVE tasks. They don’t let things distract them, but at the same time they’re don’t spend their entire lives with their nose to the grind stone, either. They know exactly what they need to do and how they need to do it to get there. You’re going to be shown how to do this in this blueprint. By doing these things, you avoid all of the things that basically do nothing more than waste a huge portion of your day, and it will force you to turn the corner in your business.
+
+
+Part 1 – Your Plan Every successful business starts with a plan. I don't care if it's a beauty salon, radio shop, service repair company, or an online business. Every single one that has been successful began with a plan. This is where a lot of people really screw up. I like to equate it someone trying to go on a diet.
+
+
+To state the obvious, the reason we have a plan is: 
+
+1) You Have To Know Where You Are Going Before You Start 
+
+2) If You Don't Have A Plan You Are Setting Yourself Up To Fail
+
+The two plans you are going to create are: 
+
+A Personal Plan       
+
+A Business Plan
+
+
+
+# 浪费的节约方法 -记录上网具体事项
+
+
+For the next five days, I want you to write down exactly what you do and what times you are doing it while you are supposed to be working. I don't care if it's answering the phone, getting the mail or going to the bathroom. Write down anything that you do while you are on work time. Write down what you are doing, the time you start doing it and the time you stop doing it. Write down everything you do during your “work” time. This means that if you get up to go to the bathroom at 3:00 p.m. and you get back at 3:05 p.m., write it down. If you start reading emails at 4:00 p.m., write it down. When you are done with your emails, write down the time you stopped. I don't care what you are doing, if you do something during the hours you have set aside to work, write it down for five consecutive days.
+
+
+
+So, to recap this portion: 
+
+1) Work in one hour blocks of time. 
+
+2) Take a five minute break after each hour.
+
+3) Work with a timer to keep on plan.
+
+4) Cut of all distractions.
+
+
+
+
