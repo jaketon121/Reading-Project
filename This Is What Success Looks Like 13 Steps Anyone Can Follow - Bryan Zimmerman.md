@@ -136,3 +136,4 @@ It has to be that way. You will have to make sacrifices. In the end, it's worth 
 
 The only way to deal with a comfort zone in business and in life is to smash the walls down! The best thing you can do for yourself is to do something outside of your comfort zone each day. Every day, look for something that's outside your comfort zone and then DO IT! If you do this every day, imagine what it will take to actually make you uncomfortable! Over the course of time, there's not going to be much that you're not comfortable doing.
 
+# IT'S ALL A MEANS TO AN END  最终的意义 开心 快乐
