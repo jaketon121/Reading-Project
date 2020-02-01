@@ -58,3 +58,33 @@ they subscribe to? What blogs do they read? Are they reading The New York Times 
 Huffington Post? What other interests do they have? Do they like sports or the arts? How
 about fishing or race cars? If you don’t know the who, it will be hard to find out where
 your perfect client can be found.
+
+# Question #3: What Bait Will You Use to Attract Them? 
+
+- Once we know where the
+dream customers are, we have to create the right bait to attract them. Your bait could be a
+physical book, a CD, DVD, or an audio recording—anything that your dream customer
+would pay attention to and want.
+
+- When you find out what your dream clients want, it becomes very easy to attract them. 
+
+
+# Question #4: What Result Do You Want To Give Them? 
+
+- Once you’ve hooked your
+dream customers with the perfect bait, the last question is what RESULT do you want to
+give them? I’m not talking about what product or service you want to sell them. A
+business is NOT about products and services. A business is about what result you can get
+for your clients. Once you (and they) understand that concept, then price is no longer a
+barrier.
+
+- I understand that many of my customers won’t be able to pay me for that level of
+service (which is why we develop other products and services), but understanding where
+you ultimately want to take the dream client is the key to this step.
+Imagine that your clients could pay you anything to get a desired result. What, then,
+would you do to help guarantee their success? Where would you lead them? What does
+that place look like? Keep that place in your mind; it’s the pinnacle of success for your
+clients. It’s where you want to take them, and it’s the key to this last step.
+
+
+
