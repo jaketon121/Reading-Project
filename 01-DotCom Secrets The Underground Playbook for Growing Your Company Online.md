@@ -87,4 +87,4 @@ that place look like? Keep that place in your mind; it’s the pinnacle of succe
 clients. It’s where you want to take them, and it’s the key to this last step.
 
 
-
+# SECRET #2: THE VALUE LADDER
