@@ -88,3 +88,26 @@ clients. It’s where you want to take them, and it’s the key to this last ste
 
 
 # SECRET #2: THE VALUE LADDER
+
+- You may buy one of my home study courses or attend one of my live events. If you
+receive value from that, then you may decide to sign up for my $10,000 Ignite program, or
+maybe my $25,000 Inner Circle program. And if I provide awesome value there, then you
+will naturally want to keep ascending … and THAT is how we sell our million-dollar
+packages. We provide insane amounts of value at each step of our Value Ladder, so our
+clients naturally want to ascend, get more value, and pay us more money.
+
+- Oh yeah, and just like the dentist, no Value Ladder is complete without a good
+continuity program. There are many ways to structure your continuity program. It could be
+organized around software, membership sites, or ongoing coaching, but it should be
+something you can bill for each month. That residual income will become the lifeblood of
+your business. For my DotComSecrets business, our main continuity program is our
+software ClickFunnels, which allows people to create sales funnels with the click of a
+mouse. Our clients pay us monthly to use this software to help run their businesses. It
+saves them a ton of time and money and provides us with residual income. Win-Win.
+
+- The only limit to your value offerings is your imagination. Keep thinking of higher
+and higher levels of service, and you can keep charging more and more money. There’s
+always something else you can offer.
+
+
+# SECRET #3: FROM A LADDER TO A FUNNEL
